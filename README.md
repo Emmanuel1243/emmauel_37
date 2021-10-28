@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @emmanuel_37
+- 👀 I’m interested in digital marketing 
+- 🌱 I’m currently learning link promotion 
+- 💞️ I’m looking to collaborate with AFFILIATE buyers 
+- 📫 How to reach me https://www.fiverr.com/emmaneul_37
